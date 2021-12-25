@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zhongxiongzeng
-- 👀 I’m working for ZhongAn Insurance
+- 👀 I’m working in ZhongAn Insurance
 - 📫 How to reach me , you can send email to 909779528@qq.com
 
 <!---
